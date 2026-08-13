@@ -12,3 +12,4 @@
 
 ---
 ⭐️ *"Pausar também é alta performance."*
+<img width="1080" height="1350" alt="1000215770" src="https://github.com/user-attachments/assets/3e7c19cd-09f6-4610-8e20-81a4e41a0fe4" />
