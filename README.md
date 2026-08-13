@@ -8,7 +8,6 @@
 
 **Competências:** Liderança, Alta Performance, Autocuidado, Inteligência Emocional
 
-![Certificado](certificado.png)
 
 ---
 ⭐️ *"Pausar também é alta performance."*
